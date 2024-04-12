@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @MrVadrix
+- 👀 I’m interested in programming, Magic: The Gathering
+- 🌱 I’m currently learning Python
+- 📫 How to reach me werewolfas2k10@gmail.com
+- 😄 Pronouns: He/Him
